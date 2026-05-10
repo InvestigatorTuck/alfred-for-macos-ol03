@@ -1,4 +1,4 @@
-
+new Alfred for macOS Addon | dark mode + AI assistant offers the most advanced Alfred for macOS addon, with dark mode and AI assistant. Ideal for professionals.
 
 
 
